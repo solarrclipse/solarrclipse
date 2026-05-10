@@ -1,4 +1,4 @@
-## "Yeah, I'm straight. Straight as a circle."
+## "Your life isn't yours if you always care what others think".
 
 <![
 ](https://static.wikia.nocookie.net/tsbs/images/3/33/SolarNJack-Cutout.png/revision/latest?cb=20250714041300)

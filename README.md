@@ -1,7 +1,5 @@
-## "Your life isn't yours if you always care what others think".
-
+## "ꪗꪮꪊ᥅ ꪶ꠸ᠻꫀ ꠸ᦓꪀ'ꪻ ꪗꪮꪊ᥅ᦓ ꠸ᠻ ꪗꪮꪊ ꪖꪶ᭙ꪖꪗᦓ ᥴꪖ᥅ꫀ ᭙ꫝꪖꪻ ꪮꪻꫝꫀ᥅ᦓ ꪻꫝ꠸ꪀᛕ".
 <![
-](https://static.wikia.nocookie.net/tsbs/images/3/33/SolarNJack-Cutout.png/revision/latest?cb=20250714041300)
+](https://www2.online-converting.com/upload/api_b08f02174e/result.jpg)
 
-hey uhm i had to rmk my account because it followed too much people and had too much storage so hey. and uh this is a wip
-
+ꪗꪮꪊ'ꪶꪶ ꪮᠻꪻꫀꪀ ᠻ꠸ꪀᦔ ꪑꫀ ꠸ꪀ ꪻꫝꫀ ᠻꪀꪖᠻ ꪖ᥅ꫀꪖ! ꠸'ꪑ ᥅ꪖ᥅ꫀꪶꪗ ꪖꪀꪗ᭙ꫝꫀ᥅ꫀ ꫀꪶᦓꫀ.

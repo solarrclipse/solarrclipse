@@ -1,5 +1,5 @@
 ## "ꪗꪮꪊ᥅ ꪶ꠸ᠻꫀ ꠸ᦓꪀ'ꪻ ꪗꪮꪊ᥅ᦓ ꠸ᠻ ꪗꪮꪊ ꪖꪶ᭙ꪖꪗᦓ ᥴꪖ᥅ꫀ ᭙ꫝꪖꪻ ꪮꪻꫝꫀ᥅ᦓ ꪻꫝ꠸ꪀᛕ".
 <![
-](https://www2.online-converting.com/upload/api_b08f02174e/result.jpg)
+](https://media1.tenor.com/m/iVHQPP5eYy4AAAAd/fnaf-eclipse.gif)
 
 ꪗꪮꪊ'ꪶꪶ ꪮᠻꪻꫀꪀ ᠻ꠸ꪀᦔ ꪑꫀ ꠸ꪀ ꪻꫝꫀ ᠻꪀꪖᠻ ꪖ᥅ꫀꪖ! ꠸'ꪑ ᥅ꪖ᥅ꫀꪶꪗ ꪖꪀꪗ᭙ꫝꫀ᥅ꫀ ꫀꪶᦓꫀ.

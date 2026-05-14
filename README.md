@@ -1,5 +1,5 @@
-## "Moon may have been harmful, but he's *nothing* like me.."
+## "Two people in one body. Three codes in three beings."
 <![
-](https://media1.tenor.com/m/iVHQPP5eYy4AAAAd/fnaf-eclipse.gif)
+](https://media.tenor.com/kaxLSNpx9yoAAAAM/fnaf-sundrop.gif)
 
 In the FNaF area most of the time.

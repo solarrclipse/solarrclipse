@@ -1,5 +1,5 @@
-## "ꪗꪮꪊ᥅ ꪶ꠸ᠻꫀ ꠸ᦓꪀ'ꪻ ꪗꪮꪊ᥅ᦓ ꠸ᠻ ꪗꪮꪊ ꪖꪶ᭙ꪖꪗᦓ ᥴꪖ᥅ꫀ ᭙ꫝꪖꪻ ꪮꪻꫝꫀ᥅ᦓ ꪻꫝ꠸ꪀᛕ".
+## "Moon may have been harmful, but he's *nothing* like me.."
 <![
 ](https://media1.tenor.com/m/iVHQPP5eYy4AAAAd/fnaf-eclipse.gif)
 
-ꪗꪮꪊ'ꪶꪶ ꪮᠻꪻꫀꪀ ᠻ꠸ꪀᦔ ꪑꫀ ꠸ꪀ ꪻꫝꫀ ᠻꪀꪖᠻ ꪖ᥅ꫀꪖ! ꠸'ꪑ ᥅ꪖ᥅ꫀꪶꪗ ꪖꪀꪗ᭙ꫝꫀ᥅ꫀ ꫀꪶᦓꫀ.
+In the FNaF area most of the time.

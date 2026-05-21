@@ -1,5 +1,5 @@
-## *"ʜᴇʜᴇ.. ʜᴇ ᴅᴏᴇꜱɴ'ᴛ ᴋɴᴏᴡ ɪᴛ'ꜱ ꜱᴘᴏᴏᴋʏ ᴍᴏɴᴛʜ.."*
-<![
-](https://static.wikia.nocookie.net/neutral-characters/images/7/70/SkidandPumpVolCover2.webp/revision/latest?cb=20250709040602)
+## Guys, this is a wip. And no, I don't ship these two.
 
-## *ᴜɴꜰɪɴɪꜱʜᴇᴅ!*
+<!<img width="212" height="237" alt="result" src="https://github.com/user-attachments/assets/f50ba7c1-1369-4e4e-9202-af565986e90e" />
+
+

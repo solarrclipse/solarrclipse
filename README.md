@@ -1,5 +1,6 @@
 ## im bored.
-<!<img width="720" height="720" alt="9fca5bdd34de988d835b78809fadc5e1f2c23d30" src="https://github.com/user-attachments/assets/e2192baf-8938-45e6-8a62-9948acd32771" />
+<!<img width="893" height="1080" alt="tumblr_9f30171dc9c5e3e5e2431689852ee7d7_5857dc82_1280" src="https://github.com/user-attachments/assets/b4413fa7-59b8-4fd8-834c-790a28d31d14" />
+
 
 
 

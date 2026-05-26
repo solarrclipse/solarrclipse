@@ -1,5 +1,6 @@
-## im so bored that i need a sport.
-<!<img width="498" height="498" alt="dsaf-dsaf-dayshift-at-freddys" src="https://github.com/user-attachments/assets/2d9be2ef-7963-4671-a43e-3f67341e192b" />
+## too lazy to make this cool.
+<!<img width="526" height="526" alt="result" src="https://github.com/user-attachments/assets/df07593c-16a3-4361-b9c6-0286fc402257" />
+
 
 
 

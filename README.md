@@ -1,5 +1,6 @@
 ## too lazy to make this cool.
-<!<img width="526" height="526" alt="result" src="https://github.com/user-attachments/assets/df07593c-16a3-4361-b9c6-0286fc402257" />
+<!<img width="680" height="680" alt="2792591_cheetodeeto_spooky-month-d" src="https://github.com/user-attachments/assets/897f6d98-ddd7-4ca8-8833-194612cb5704" />
+
 
 
 

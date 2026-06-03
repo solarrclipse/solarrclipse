@@ -1,6 +1,7 @@
 
 
-<!<img width="859" height="414" alt="screenshot_7f3b505b-9568-4458-96d4-bfe355c99d8f" src="https://github.com/user-attachments/assets/2f14bafc-2b4a-43ad-8924-bfd62d245415" />
+ <!<img width="834" height="355" alt="victim-x-mitsi-the-victim-x-mitsi-ship-is-realllll-v0-3fenq3f7xt6e1" src="https://github.com/user-attachments/assets/f649a21f-e28a-4c8d-9baf-a4044afcd75d" />
+
 
 
 <h1 align="center">"... Together from afar..."</h1>

@@ -10,7 +10,7 @@
 
 - Objective: **Destroy *Alan***
 
-- Enemies: **Alan Becker,The *Dark Lord*, The *Chosen One* , The *Second Coming***
+- Enemies: **Alan Becker, The *Dark Lord*, The *Chosen One* , The *Second Coming***
 
 - Goal: **Bring *her* back**
 

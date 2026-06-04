@@ -28,7 +28,7 @@
 
 - ## "We have been together so long... Is it time to let go..?"
 
-<h3 align="left">"You are the reason to go on living..".</h3>
+<h3 align="left">Goodbye..</h3>
 <p align="left">
 </p>
 

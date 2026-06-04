@@ -1,6 +1,6 @@
 
 
-   <!<img width="600" height="487" alt="download" src="https://github.com/user-attachments/assets/b2a74145-4a99-480d-a198-15a1b99225e1" />
+   <!<img width="1000" height="700" alt="download" src="https://github.com/user-attachments/assets/b2a74145-4a99-480d-a198-15a1b99225e1" />
 
 
 <h1 align="center">"Your fault."</h1>

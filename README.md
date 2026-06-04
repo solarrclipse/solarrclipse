@@ -1,35 +1,34 @@
 
 
- <!<img width="834" height="355" alt="victim-x-mitsi-the-victim-x-mitsi-ship-is-realllll-v0-3fenq3f7xt6e1" src="https://github.com/user-attachments/assets/f649a21f-e28a-4c8d-9baf-a4044afcd75d" />
+   <!<img width="600" height="487" alt="download" src="https://github.com/user-attachments/assets/b2a74145-4a99-480d-a198-15a1b99225e1" />
 
 
-
-<h1 align="center">"... Together from afar..."</h1>
-<h3 align="center">Deleting something that never dies.</h3>
+<h1 align="center">"Your fault."</h1>
+<h3 align="center">Michael Afton.</h3>
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=solarrclipse&label=Profile%20views&color=0e75b6&style=flat" alt="solarrclipse" /> </p>
 
-- Objective: **Destroy *Alan***
+- Not too much info to put here, ngl.
 
-- Enemies: **Alan Becker, The *Dark Lord*, The *Chosen One* , The *Second Coming***
+- ## "I'm sorry, though you won't believe.."
 
-- Goal: **Bring *her* back**
+- You can call me by skin name since idk what I want to be called
 
-- Abilities: **Manipulate digital tech, disable and enable power, pause and glitch rivals.**
+- ## "It was you and me before we were *turned*.."
 
-- Love interest: **Mitsi / status: deceased**
+- I'm  NOT very social so please interact first.. I may be afk though.
 
-- Interest: **Observing and learning stragetic advantages against rivals.**
+- ## "Hey, *Dad*. It's me, Michael..."
 
-- Creation: **June 3rd, 2006**
+- I'm mostly known as *Victim* or *Jax* so you can just call me one of those.
 
-- Age: **Not known**
+- ## ".. I'm sorry, C.C.... What have *I* done..?"
 
-- Caution: **This Hollow Head is hostile if provoked and will not hesitate to attack if threatened.**
+- DNI: sensitive people, toxic trolls, every disgusting shipper ever, etc.
 
-- File: **The_Victim.exe**
+- ## "We have been together so long... Is it time to let go..?"
 
-<h3 align="left">We will meet again, but until now. We must depart. Goodbye, old friend.</h3>
+<h3 align="left">"You are the reason to go on living..".</h3>
 <p align="left">
 </p>
 

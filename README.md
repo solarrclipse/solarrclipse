@@ -1,35 +1,36 @@
 
 
-   <!<img width="900" height="800" alt="image" src="https://github.com/user-attachments/assets/379640b9-3aed-4be0-a336-82651f8cb221" />
+   <!<img width="540" height="462" alt="image" src="https://github.com/user-attachments/assets/0a208991-8609-412b-aa53-a9d90ac10e24" />
 
 
 
 
 
-<h1 align="center">"Your fault."</h1>
-<h3 align="center">The Crying Child.</h3>
+
+<h1 align="center">"Go back to sleep..."</h1>
+<h3 align="center">Freddy and Bon-Bon.</h3>
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=solarrclipse&label=Profile%20views&color=0e75b6&style=flat" alt="solarrclipse" /> </p>
 
 - Not too much info to put here, ngl.
 
-- ## "Daddy *warned* you.."
+- ## "I hear a *sound*..."
 
 - You can call me by skin name since idk what I want to be called
 
-- ## "It was *you* and me before we were *turned*.."
+- ## "Probably just a mouse."
 
 - I'm  NOT very social so please interact first.. I may be afk though.
 
-- ## "PLEASE, STOP! LET ME GO!.."
+- ## "Keep you workin', try to survive."
 
 - I'm mostly known as *Victim* or *Jax* so you can just call me one of those.
 
-- ## ".. My head *hurts*.."
+- ## ".. You can run, you can try, but you can't hide."
 
 - DNI: sensitive people, toxic trolls, every disgusting shipper ever, etc.
 
-- ## "We have been together so long... Is it time to let go..?"
+- ## "It was probably just a spark?"
 
 <h3 align="left">Ba-bye!!</h3>
 <p align="left">

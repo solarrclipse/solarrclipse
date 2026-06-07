@@ -1,7 +1,6 @@
 
 
-   <!<img width="900"
-      height="800" alt="image" src="https://github.com/user-attachments/assets/9f006bed-54a4-4e5c-918b-c6deecc44073" />
+   <!<img width="521" height="479" alt="image" src="https://github.com/user-attachments/assets/0a162360-5703-4065-a6a3-fae25c1a9501" />
 
 
 
@@ -9,30 +8,31 @@
 
 
 
-<h1 align="center">"Go back to sleep..."</h1>
+
+<h1 align="center">"Stop whining!.."</h1>
 <h3 align="center">Freddy and Bon-Bon.</h3>
 
-<p align="left"> <img src="https://komarev.com/ghpvc/?username=solarrclipse&label=Profile%20views&color=0e75b6&style=flat" alt="solarrclipse" /> </p>
+<p align="left"> <img src="https://komarev.com/ghpvc/?username=solarrclipse&label=Caine%20views&color=6910be&Style=block" alt="solarrclipse" /> </p>
 
 - Not too much info to put here, ngl.
 
-- ## "I hear a *sound*..."
+- ## "Ugh, not again..."
 
 - You can call me by skin name since idk what I want to be called
 
-- ## "Probably just a mouse."
+- ## "Come on, he likes it!"
 
 - I'm  NOT very social so please interact first.. I may be afk though.
 
-- ## "Keep you workin', try to survive."
+- ## "This isn't even reality!"
 
 - I'm mostly known as *Victim* or *Jax* so you can just call me one of those.
 
-- ## ".. You can run, you can try, but you can't hide."
+- ## "STOP! What is wrong with you?!"
 
 - DNI: sensitive people, toxic trolls, every disgusting shipper ever, etc.
 
-- ## "It was probably just a spark?"
+- ## "Just because I didn't fight back means I secretly care about you?"
 
 <h3 align="left">Ba-bye!!</h3>
 <p align="left">

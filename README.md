@@ -1,92 +1,57 @@
 <div align="center">
 
-<!<img width="618" height="404" alt="image" src="https://github.com/user-attachments/assets/eb0984a8-5e9d-46a3-b3e5-b394f4b81698" />
+<!<img width="735" height="602" alt="result" src="https://github.com/user-attachments/assets/56dab035-490e-4a90-90ef-70837ce699fa" />
 
 
-# ✦ grayaa ✦
+# ★ JACK ★
 
-"Keep working.... with a *SMILE*!"
+<img src="https://media.tenor.com/5f7X6b5w7tQAAAAi/purple-star.gif" width="40">
+<img src="https://media.tenor.com/5f7X6b5w7tQAAAAi/purple-star.gif" width="40">
+<img src="https://media.tenor.com/5f7X6b5w7tQAAAAi/purple-star.gif" width="40">
 
 </div>
 
----
+If you see Pomni...
 
-## random stuff
-
-> "Ooh, bacon soup!"
-
-you know how people just kinda do super cool productive stuff? well, don't do that.
-
-you have a life, don't waste it like i am.
-
-*Fandoms*
-- The Amazing Digital Circus
-- Animation vs Animator
-- Dandy's World
-- Poppy Playtime
-- Five Nights at Freddy's
-- Sonic
-- Minecraft
-- Bendy and the Ink Machine
-
----
-
-## bleehhhh
-
-> "What we will face doesn't wanna play.."
-
-```txt
-average        Lazy
-hehehe      ███░░░░░░░ 30%
-
-brain power  █░░░░░░░░░ 10%
-focus        ██░░░░░░░░ 20%
-
-my life mission
-Watching YouTube instead of doing
-whatever I was supposed to do.
-```
-
----
-
-## what i do
-
-```txt
-☑ Watching YouTube
-☑ Drawing crap
-☑ sleeping
-☑ listening to songs
-☐ actually helping humanity
-```
-
----
-
-## heh these stuff remind me of myself
-
-"BORIS, SHUT UP! YOU'RE RUINING IT!"
-
-Oh my god, look at that face! IF YOU'RE FEELING SUICIDAL, YOU'VE CAME TO THE RIGHT PLACE!"
-
----
-
-## VERY IMPORTANT
-
-```txt
-ability to think:       ????
-sleeping reminder:   Missing
-care to help ppl:     Gone
-stupidty level:      Maximum
-```
+RUN.
 
 ---
 
 <div align="center">
 
-### bye guys waves bye
-
-trading super wise advice for:
-- art
-- cxh
-- someone's brain power
 
 </div>
+
+
+
+
+
+<p align="center">
+<img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=5F1B8A&center=true&vCenter=true&width=700&lines=...+There's+no+exit...;No+way+out+of+this+hell..." />
+</p>
+
+---
+
+# ★ About Me
+
+```txt
+Hi! I'm Grayaa! You can call me Jaaxze or Vicx!
+
+6/06/09
+
+17
+
+I'm no a sensitve person, which means any dark humor is fine as long as it's not about a murdered/dead person!!
+
+Status :: Probably watching YouTube
+
+Current Thought ::
+"She's a monster..."
+
+Favorite Fandoms ::
+- TADC
+- Bendy and The Ink Machine
+- FNaF
+- Indigo Park
+- Sonic The Hedgehog
+- DSaF

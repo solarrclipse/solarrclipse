@@ -1,10 +1,11 @@
 <div align="center">
 
-<img src="https://www2.online-converting.com/upload/api_ab1aa09b65/result.jpg" width="100%">
+<!<img width="618" height="404" alt="image" src="https://github.com/user-attachments/assets/eb0984a8-5e9d-46a3-b3e5-b394f4b81698" />
+
 
 # ✦ grayaa ✦
 
-"BORIS, SHUT UP! YOU'RE RUINING IT!"
+"Keep working.... with a *SMILE*!"
 
 </div>
 
@@ -12,7 +13,7 @@
 
 ## random stuff
 
-> "NO, MY CHAIR!"
+> "Ooh, bacon soup!"
 
 you know how people just kinda do super cool productive stuff? well, don't do that.
 
@@ -26,12 +27,13 @@ you have a life, don't waste it like i am.
 - Five Nights at Freddy's
 - Sonic
 - Minecraft
+- Bendy and the Ink Machine
 
 ---
 
 ## bleehhhh
 
-> "What is going o- AH!"
+> "What we will face doesn't wanna play.."
 
 ```txt
 average        Lazy
@@ -63,11 +65,7 @@ whatever I was supposed to do.
 
 "BORIS, SHUT UP! YOU'RE RUINING IT!"
 
-"NO, MY CHAIR!"
-
-"What is going o- AH!"
-
-"Shhh, chair... he didn't mean it..."
+Oh my god, look at that face! IF YOU'RE FEELING SUICIDAL, YOU'VE CAME TO THE RIGHT PLACE!"
 
 ---
 

@@ -41,7 +41,7 @@ Hi! I'm Grayaa! You can call me Jaaxze or Vicx!
 
 17
 
-I'm no a sensitve person, which means any dark humor is fine as long as it's not about a murdered/dead person!!
+I'm not a sensitve person, which means any dark humor is fine as long as it's not about a murdered/dead person!!
 
 Status :: Probably watching YouTube
 

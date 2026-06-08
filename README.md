@@ -11,7 +11,7 @@
 
 </div>
 
-If you see Pomni...
+If you see *Jester*..
 
 RUN.
 

@@ -1,57 +1,154 @@
 <div align="center">
 
-<!<img width="735" height="602" alt="result" src="https://github.com/user-attachments/assets/56dab035-490e-4a90-90ef-70837ce699fa" />
+<img  width="735" height="490" alt="result" src="https://github.com/user-attachments/assets/4385112a-4f3a-47c0-8723-c3179ed99955" />
 
+# ✦ Jaazxee ✦
 
-# ★ JACK ★
+<img src="https://readme-typing-svg.demolab.com?font=Fira+Code&weight=600&size=24&pause=2500&color=00FF66&center=true&vCenter=true&width=800&lines=Have+you+ever...+done+something+you+regret%3F" />
 
-<img src="https://media.tenor.com/5f7X6b5w7tQAAAAi/purple-star.gif" width="40">
-<img src="https://media.tenor.com/5f7X6b5w7tQAAAAi/purple-star.gif" width="40">
-<img src="https://media.tenor.com/5f7X6b5w7tQAAAAi/purple-star.gif" width="40">
+<img src="https://readme-typing-svg.demolab.com?font=Fira+Code&weight=600&size=24&pause=3000&color=C77DFF&center=true&vCenter=true&width=1000&lines=I+don't+have+friends+because+I+pushed+HER+away!" />
+
+<br>
+
+<img src="https://komarev.com/ghpvc/?username=Jaazxee&label=Profile+Views&color=8A2BE2&style=for-the-badge">
 
 </div>
 
-If you see *Jester*..
+---
 
-RUN.
+# Info
+
+yo i'm **Jaazxee**.
+
+I'm a random dude who enjoys drawing, voice acting, gaming, and spending way too much time thinking about fictional characters.
+
+Most of the time you'll find me:
+
+afk
+
+possibly doing voices for friends
+
+playing vrchat
+
+on youtube
+
+making skins that i'll never actually finish
+
+working on my au: "A True Fear"
+
+---
+
+# Fandoms
+
+<div align="center">
+
+| Fandom | Status |
+|----------|----------|
+| 🐻 FNaF | Fav |
+| 🎪 TADC | TOP GUYS |
+| 🖌️ AVA | Por Favor? |
+| 🖤 BaTIM | I like this |
+| 💙 Sonic The Hedgehog | Meow |
+
+</div>
+
+---
+
+# Normal mood loops
+
+```text
+Lazy          █████████░░
+Thinking      ████████░░░
+AU working        ██████████░
+Drawing       █████████░░
+Motivation    ██░░░░░░░░░
+```
+
+---
+
+# Hobbies
+
+```text
+✦ Drawing
+✦ Voice Acting
+✦ Animation
+✦ Storytelling
+✦ Character Design
+✦ Horror Games
+✦ Making OCs
+✦ Collecting Images
+✦ Listening To Music
+✦ Watching YouTube
+```
+
+</div>
+
+---
+
+# AU quotes + real quotes
+
+```text
+"STOP! What's wrong with you?!"
+
+"I won't care for all of 'em."
+
+"What is going o- AH!"
+
+"I don't NEED your pity.."
+
+"Have you ever... done something you regret?"
+
+"I don't have friends because I pushed HER away!"
+```
+
+---
+
+# Press for AU info!
+
+<div align="center">
+
+<a href="(https://atruefear.straw.page)">
+<img src="https://img.shields.io/badge/CLICK%20HERE-Open%20Page-8A2BE2?style=for-the-badge">
+</a>
+
+</div>
+
+---
+
+# ME!
+
+```yaml
+Name: Jaazxee
+Age: 17
+Status: Probably watching YouTube
+Favorite Fandoms:
+  - FNaF
+  - TADC
+  - AVA
+  - BaTIM
+  - Sonic The Hedgehog
+
+Current Objective:
+  Be the mom friend.
+
+Achievement:
+  Keep everyone sane and happy.
+```
 
 ---
 
 <div align="center">
 
+## Yo thanks!
 
-</div>
-
-
-
+<div align="center">
 
 
-<p align="center">
-<img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=5F1B8A&center=true&vCenter=true&width=700&lines=...+There's+no+exit...;No+way+out+of+this+hell..." />
-</p>
+<img width="220" height="191" alt="jax-digital-circus" src="https://github.com/user-attachments/assets/ae098d16-ac9e-4486-9a16-f61202db0acb" />
 
----
 
-# ★ About Me
+<br>
 
-```txt
-Hi! I'm Grayaa! You can call me Jaaxze or Vicx!
+*"The circus never forgets."*
 
-6/06/09
 
-17
-
-I'm not a sensitve person, which means any dark humor is fine as long as it's not about a murdered/dead person!!
-
-Status :: Probably watching YouTube
-
-Current Thought ::
-"She's a monster..."
-
-Favorite Fandoms ::
-- TADC
-- Bendy and The Ink Machine
-- FNaF
-- Indigo Park
-- Sonic The Hedgehog
-- DSaF

@@ -107,9 +107,11 @@ Motivation    ██░░░░░░░░░
 
 <div align="center">
 
-<a href="(https://atruefear.straw.page)">
-<img src="https://img.shields.io/badge/CLICK%20HERE-Open%20Page-8A2BE2?style=for-the-badge">
-</a>
+<p align="center">
+  <a href="https://atruefear.straw.page" target="_blank">
+    <img src="https://img.shields.io/badge/%20A%20True%20Fear-Visit%20My%20Strawpage-purple?style=for-the-badge" alt="A True Fear">
+  </a>
+</p>
 
 </div>
 

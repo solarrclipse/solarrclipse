@@ -32,7 +32,7 @@ playing vrchat
 
 on youtube
 
-making skins that i'll never actually finish
+making skins that i'll never actually finish like ever
 
 working on my au: "A True Fear"
 

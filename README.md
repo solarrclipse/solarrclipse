@@ -1,6 +1,7 @@
 <div align="center">
 
-<img  width="735" height="490" alt="result" src="https://github.com/user-attachments/assets/4385112a-4f3a-47c0-8723-c3179ed99955" />
+<img width="585" height="426" alt="image" src="https://github.com/user-attachments/assets/d925eab5-4594-4ce4-95a4-890c005cc52c" />
+
 
 # ✦ Jaazxee ✦
 

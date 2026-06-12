@@ -7,11 +7,14 @@
 
 # ✦ Jaazxee ✦
 
-<img src="https://readme-typing-svg.demolab.com?font=Fira+Code&weight=600&size=24&pause=2500&color=00FF66&center=true&vCenter=true&width=800&lines=Have+you+ever...+done+something+you+regret%3F" />
+<p align="center">
+  <img src="https://readme-typing-svg.demolab.com?font=Fira+Code&weight=700&size=24&pause=1000&color=00FF00&center=true&vCenter=true&width=800&lines=What+do+they+want+with+me?" />
+</p>
 
 <p align="center">
-  <img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=24&pause=1000&color=FF0000&center=true&vCenter=true&width=600&lines=YOU%27RE+LYING%21" alt="Typing SVG" />
+  <img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=20&pause=1000&color=8000FF&center=true&vCenter=true&width=1200&lines=Behind+the+mask,+there+was+a+man+following+what+you+would+do.;He+was+a+bad,+a+very+bad+man.;Nothing+stopped+him+hurting+you.;A+magical+place+lifted+up+by+joy.;Until+that+man+who+took+our+voice...;Killed+us,+killed+us,+killed+us,+killed+us." />
 </p>
+
 
 <br>
 

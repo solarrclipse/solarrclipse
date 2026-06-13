@@ -1,7 +1,7 @@
 <p align="center">
-  <a href="https://music.youtube.com/watch?v=4-EBvQ8eMwQ&si=_IXHRyVUOjRjbXNU">
-    <b><span style="color:#0000FF;">
-      Ugh, here we go AGAIN.
+  <a href="https://github.com/nyxarchve">
+    <b><span style="color:#68544e;">
+      Click this link to follow a very cool person. Don't forget to draw on her straw.
     </span></b>
   </a>
 </p>

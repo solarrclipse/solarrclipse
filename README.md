@@ -18,7 +18,7 @@
 # ✦ Jaazxee ✦
 
 <p align="center">
-  <img src="https://readme-typing-svg.demolab.com?font=Dancing+Script&weight=700&size=32&pause=1000&color=A020F0&center=true&vCenter=true&width=900&lines=Welcome+to+my+side+of+Hell!" />
+  <img src="https://readme-typing-svg.demolab.com?font=Dancing+Script&weight=700&size=32&pause=1000&color=8000FF&center=true&vCenter=true&width=900&lines=Welcome+to+my+side+of+Hell!" />
 </p>
 
 <p align="center">

@@ -18,11 +18,11 @@
 # ✦ Jaazxee ✦
 
 <p align="center">
-  <img src="https://readme-typing-svg.demolab.com?font=Fira+Code&weight=700&size=28&pause=1000&color=8000FF&center=true&vCenter=true&width=1000&lines=%C5%B4%CC%B7E%CC%B8L%CC%B6C%CC%B4O%CC%B7M%CC%B8E%CC%B4.;%5B+S%CC%B6Y%CC%B7S%CC%B8T%CC%B4E%CC%B7M+R%CC%B8E%CC%B4S%CC%B7T%CC%B8O%CC%B4R%CC%B7E%CC%B8D+%5D" />
+  <img src="https://readme-typing-svg.demolab.com?font=Dancing+Script&weight=700&size=32&pause=1000&color=A020F0&center=true&vCenter=true&width=900&lines=Welcome+to+my+side+of+Hell!" />
 </p>
 
 <p align="center">
-  <img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=20&pause=1000&color=8000FF&center=true&vCenter=true&width=1200&lines=Behind+the+mask,+there+was+a+man+following+what+you+would+do.;He+was+a+bad,+a+very+bad+man.;Nothing+stopped+him+hurting+you.;A+magical+place+lifted+up+by+joy.;Until+that+man+who+took+our+voice...;Killed+us,+killed+us,+killed+us,+killed+us." />
+  <img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=20&pause=1000&color=8000FF&center=true&vCenter=true&width=1200&lines=You+love+me?+ME?+That's+the+stupidest+thing+I've+ever+heard!" />
 </p>
 
 

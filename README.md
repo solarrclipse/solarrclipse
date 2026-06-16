@@ -32,8 +32,8 @@
 
 </div>
 
-<a href="https://i.ytimg.com/vi/rngNkwpcEt0/maxresdefault.jpg">
-  <img src="https://www2.online-converting.com/upload/api_1d45cbdeeb/result.jpg" alt="CRY FOR ME">
+<a href="https://youtu.be/rngNkwpcEt0?si=VkJTQOmO9yRHKQoX" target="_blank">
+  <img src="https://www2.online-converting.com/upload/api_1d45cbdeeb/result.jpg" alt="CRY FOR ME" width="1000">
 </a>
 
 

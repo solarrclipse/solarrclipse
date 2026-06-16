@@ -32,12 +32,10 @@
 
 </div>
 
-<p align="center">
-  <a href="[ ](https://youtu.be/rngNkwpcEt0?si=qfpWnub8O8xMH_cm)">
-    <img src="https://i.ytimg.com/vi/rngNkwpcEt0/maxresdefault.jpg" width="600">
-  </a>
-</p>
-yeah, that's me.
+<a href="https://i.ytimg.com/vi/rngNkwpcEt0/maxresdefault.jpg">
+  <img src="https://www2.online-converting.com/upload/api_1d45cbdeeb/result.jpg" alt="CRY FOR ME">
+</a>
+
 
 ---
 

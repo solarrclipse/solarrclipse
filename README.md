@@ -10,7 +10,8 @@
 
 <div align="center">
 
-<img width="632" height="395" alt="image" src="https://github.com/user-attachments/assets/9f27ccb5-fe01-4752-936d-7d22f8665d0e" />
+<img width="1280" height="922" alt="result" src="https://github.com/user-attachments/assets/e75ff76f-c1be-49f7-a698-09f3cd017337" />
+
 
 
 
@@ -18,11 +19,11 @@
 # ✦ Jaazxee ✦
 
 <p align="center">
-  <img src="https://readme-typing-svg.demolab.com?font=Dancing+Script&weight=700&size=32&pause=1000&color=8000FF&center=true&vCenter=true&width=900&lines=Welcome+to+my+side+of+Hell!" />
+  <img src="https://readme-typing-svg.demolab.com?font=Dancing+Script&weight=700&size=32&pause=1000&color=8000FF&center=true&vCenter=true&width=900&lines=WHAT+HAPPENED+TO+ME?!" />
 </p>
 
 <p align="center">
-  <img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=20&pause=1000&color=8000FF&center=true&vCenter=true&width=1200&lines=You+love+me?+ME?+That's+the+stupidest+thing+I've+ever+heard!" />
+  <img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=20&pause=1000&color=8000FF&center=true&vCenter=true&width=1200&lines=Can't+believe+you're+stupid+enough+to+care.." />
 </p>
 
 
@@ -32,11 +33,7 @@
 
 </div>
 
-<a href="https://youtu.be/rngNkwpcEt0?si=VkJTQOmO9yRHKQoX" target="_blank">
-  <img src="https://www2.online-converting.com/upload/api_1d45cbdeeb/result.jpg" alt="CRY FOR ME" width="1000">
-</a>
 
-my future scares me
 ---
 
 # Info

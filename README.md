@@ -9,9 +9,7 @@
 
 
 <div align="center">
-
-<img width="1280" height="922" alt="result" src="https://github.com/user-attachments/assets/e75ff76f-c1be-49f7-a698-09f3cd017337" />
-
+<img width="736" height="920" alt="result" src="https://github.com/user-attachments/assets/1d891d19-027e-44dc-bf40-82193614bc9e" />
 
 
 
@@ -19,11 +17,11 @@
 # ✦ Jaazxee ✦
 
 <p align="center">
-  <img src="https://readme-typing-svg.demolab.com?font=Dancing+Script&weight=700&size=32&pause=1000&color=8000FF&center=true&vCenter=true&width=900&lines=WHAT+HAPPENED+TO+ME?!" />
+  <img src="https://readme-typing-svg.demolab.com?font=Dancing+Script&weight=700&size=32&pause=1000&color=8000FF&center=true&vCenter=true&width=900&lines=I+don't+wanna+go.." />
 </p>
 
 <p align="center">
-  <img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=20&pause=1000&color=8000FF&center=true&vCenter=true&width=1200&lines=Can't+believe+you're+stupid+enough+to+care.." />
+  <img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=20&pause=1000&color=8000FF&center=true&vCenter=true&width=1200&lines=I+never+asked+for+you+to+love+me.." />
 </p>
 
 

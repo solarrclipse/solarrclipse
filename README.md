@@ -1,7 +1,7 @@
 <p align="center">
-  <a href="https://music.youtube.com/watch?v=-UPjKMFkwk0&si=mEQghwZ760DR54Xz">
+  <a href="https://github.com/nyxarchve">
     <b><span style="color:#68544e;">
-      Me abstracting.
+      Your sweet and lovely hands, your warm and friendly face..
     </span></b>
   </a>
 </p>
@@ -9,7 +9,6 @@
 
 
 <div align="center">
-<img width="736" height="920" alt="result" src="https://github.com/user-attachments/assets/1d891d19-027e-44dc-bf40-82193614bc9e" />
 
 
 
